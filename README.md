@@ -6,10 +6,11 @@ J'aime bien les jeux vidéo, et en ce moment j'essaye d'apprendre pas mal de cho
 - 👀 J'essaye d'apprendre la 3D (Modélisation, Animation ..etc..).
 - 🤩 J'aime bien écouter de la musique quand je joue ou quand je travail.
 - ⚡ Fun fact : J'ai 2 pseudo ( Fedclears et FedPrime ) Voila.
-- 📫 Vous pouvez me joindre sur Discord ou sur Twitter.
+- 📫 Vous pouvez me joindre sur Discord ou sur Twitter, ou si vous voulez par mail.
 
-> Mon Discord: FedPrime#9968 <br>
-> Mon Twitter: @FedClears
+> Mon Discord : FedPrime#9968 <br>
+> Mon Twitter : @FedClears <br>
+> Mon Mail : fouad7x2sk@gmail.com
 
 that's all 🐇
 
