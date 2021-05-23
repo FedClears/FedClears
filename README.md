@@ -1,4 +1,4 @@
-- 👋 Hi, I’m FedClears
+- 👋 Salut, C'est FedClears !
 - 👀 I'm interested in graphics and video editing, and also in development in general
 - 📫 You can reach me on Discord or twitter 
 
